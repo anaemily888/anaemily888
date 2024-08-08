@@ -4,7 +4,7 @@
 ![](https://media.tenor.com/zz-lKYIHQcQAAAAM/rihanna-crown.gif
 )
 
-*focada no progreço 🩹
+*focada no progresso 🩹
 
 
 
